@@ -1,0 +1,2 @@
+# SwitchCheat
+Nintendo switch cheat
